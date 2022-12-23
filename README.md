@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @carloskaos9
+- 👋 Hi,I’m @carloskaos9
 - 👀 I’m interested in all
 - 🌱 I’m currently learning Sound
 
